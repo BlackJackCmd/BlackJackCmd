@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BlackJackCmd
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning how to hack
+- 💞️ I’m looking to collaborate on a project
+- 📫 How to reach me email
